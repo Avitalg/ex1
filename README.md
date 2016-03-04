@@ -14,9 +14,10 @@
 3. 1 cup (240 ml) water
 4. 2/3 cup (150g) butter
 5. 1 tsp vanilla extract
-6. Chocolate Ganache
-7. 1/2 cup (120 g) whipping cream (35% fat)
-8. 4 oz (120g) bittersweet chocolate, chopped
+
+### Chocolate Ganache
+1. 1/2 cup (120 g) whipping cream (35% fat)
+2. 4 oz (120g) bittersweet chocolate, chopped
 
 
 ##Directions
