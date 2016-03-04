@@ -2,7 +2,7 @@
 
 ![cake](http://www.homecookingadventure.com/images/recipes/nobake-chocolate_biscuit_cake_main_image.jpg)
 
-[source](http://www.foodsdictionary.co.il/Recipes/2803)
+[source](http://www.homecookingadventure.com/recipes/no-bake-chocolate-biscuit-cake)
 ##Ingredients
 ###Makes about 10 servings
 1. 28 oz (800g) digestive biscuits, tea biscuits
