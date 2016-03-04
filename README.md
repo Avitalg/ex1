@@ -1,5 +1,8 @@
 #No-Bake Chocolate Biscuit Cake
-[link](http://www.foodsdictionary.co.il/Recipes/2803)
+
+![cake](http://www.homecookingadventure.com/images/recipes/nobake-chocolate_biscuit_cake_main_image.jpg)
+
+[source](http://www.foodsdictionary.co.il/Recipes/2803)
 ##Ingredients
 ###Makes about 10 servings
 1. 28 oz (800g) digestive biscuits, tea biscuits
@@ -27,5 +30,3 @@
 +Pour hot cream over the chopped chocolate and let sit for 1 minute. Stir until smooth.
 +Pour ganache over the chocolate biscuit cake and refrigerate to set for about 3-4 hours or overnight before serving.
 +Decorate with toasted nuts if desired, cut into slices and serve.
-
-![cake](http://www.homecookingadventure.com/images/recipes/nobake-chocolate_biscuit_cake_main_image.jpg)
