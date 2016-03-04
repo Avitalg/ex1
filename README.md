@@ -30,5 +30,5 @@
 + Cover and refrigerate for about 30 minutes to 1 hr before preparing the chocolate ganache.
 + Prepare Chocolate Ganache. Place cream into a small saucepan and heat until just begins to boil.
 + Pour hot cream over the chopped chocolate and let sit for 1 minute. Stir until smooth.
-+Pour ganache over the chocolate biscuit cake and refrigerate to set for about 3-4 hours or overnight before serving.
-+Decorate with toasted nuts if desired, cut into slices and serve.
++ Pour ganache over the chocolate biscuit cake and refrigerate to set for about 3-4 hours or overnight before serving.
++ Decorate with toasted nuts if desired, cut into slices and serve.
